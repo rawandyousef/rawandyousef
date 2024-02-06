@@ -4,5 +4,4 @@
 -  currently learning Data science
 -  i studay master in Fraud Protection and prevention 
 - i work in medical supplies and services as marketing ans sales coordinator
-- 📫 How to reach me ...
-=
+- i speak arabic , english and spanish 
